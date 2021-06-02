@@ -1,0 +1,1 @@
+Coding has always been of some interest to me and my previous career (current?) was kinda a dead end, so turing seemed to be a decent pivoting place. Also money. Software developers can make quite a bit, so that's motivating.
